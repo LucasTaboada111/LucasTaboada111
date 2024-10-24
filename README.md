@@ -5,5 +5,5 @@ Me considero alguien proactivo y con muchas ganas de aprender, por eso además d
 
 Trabajo de manera ágil, priorizando la entrega de valor en cada proyecto y adaptándome a las necesidades del equipo.
 
-Me encanta programar y espero seguir aprendiendo y mejorando en este mundo.
+Me encanta programar y espero seguir aportando mi conocimiento y creciendo en este mundo.
 Muchas gracias por leer.
